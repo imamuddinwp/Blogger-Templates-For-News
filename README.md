@@ -1,5 +1,5 @@
 # Blogger-Templates-For-News
-Blogger Templates For News, Magazine, Newspaper, news portal. Free and Premium Blogger Templates For News. imamuddinwp
+<strong><a href='https://www.imamuddinwp.com/p/blogger-templates-for-news-magazine.html'>Blogger Templates For News</a></strong>, Magazine, Newspaper, and news portal. Free and Premium Blogger Templates For News. imamuddinwp
 
 <strong>Disclaimer:</strong>
 <br/>
